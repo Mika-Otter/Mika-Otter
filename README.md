@@ -1,2 +1,1 @@
-##Hi
-![](https://github.com/Mika-Otter/banner/blob/main/ezgif.com-crop.gif)
+![Uploading ezgif.com-crop(2).gif…]()
